@@ -2,8 +2,8 @@
 
 ## Ingredients
 
-* avocado
-* lemon
-* salt
+* avocado (50€)
+* lemon (ask your Mom)
+* salt (from the sea!!!)
 
 ## Instructions
