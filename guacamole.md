@@ -7,3 +7,4 @@
 * salt (from the sea!!!)
 
 ## Instructions
+Peel the avocados
